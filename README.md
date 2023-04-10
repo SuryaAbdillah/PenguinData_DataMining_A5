@@ -4,7 +4,7 @@
 - Dosen Pengampu: Dini Adni Navastara, S.Kom, M.Sc.
 - Kelompok 7, Anggota:
     - 5025201054 / Hesekiel Nainggolan
-    - 5025201079 / Julio Geraldi
+    - 5025201079 / Julio Geraldi Soeiono
     - 5025201229 / Surya Abdillah
 
 
